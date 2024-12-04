@@ -16,8 +16,7 @@
 2. cmake管理工程
 
 ### 下载地址
-[蓝奏云](https://wwzy.lanzoue.com/iLlix2h7h52b)
-
+[蓝奏云](https://wwzy.lanzoue.com/itwv52h7lt6d)
 
 
 
